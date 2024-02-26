@@ -1,10 +1,8 @@
 ## About Me 💼
 
-# Nilanjan Paul 🚀
+# Vishan Costa 🚀
 
-### Software Engineering Professional 
-
-📍 Gurugram, India | 📅 29 years old | 📞 +91 (your phone number) | 📧 nilanjan.paul@email.com | 🌐 [LinkedIn](www.linkedin.com/in/nilanjanpaul)
+📍 Negombo, Srilanka | 📧 vishandilanka67@outlook.com | 
 
 🎓 **Education:** Completed G.C.E Ordinary Level at Loyola College Negombo in 2017 with 7 "A" (Distinction) passes and 2 "B" passes. Graduated from Loyola College Negombo in the Biological Stream for G.C.E Advanced Level in 2022/2023. Also completed NCC Level 3 - International Foundation Diploma for Higher Education (L3IFDHES) in 2023 from NCC Education UK / BCI Campus.
 
