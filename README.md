@@ -27,12 +27,6 @@
 - **Swimming Achievements:** Participated and placed in All Island Swimming Meets and Novices Meets.
 - **Leadership Experience:** Prefect in school and active volunteer in Sri Lanka Red Cross Society.
 
-## Contact 📞
-
-📧 **Email:** vishancosta67@gmail.com
-📱 **Phone:** +94776875841
-📍 **Address:** 21, Bolawatta Rd, Dankotuwa, Sri Lanka
-
 ## References 📝
 
 - Mrs. Sheril Costa (Coordinator, NCC Program, BCI Campus) - Tel: +94740165899
